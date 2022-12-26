@@ -1,0 +1,2 @@
+# MRPAPASKR-
+Quiero optimizar 
